@@ -4,7 +4,7 @@ Hi, I'm Bryan!
 
 :evergreen_tree: I live in the Pacific Northwest.
 
-Currently live life with my partner :woman: Riley and our cat :smile_cat: Elaine.
+Enjoying life with my partner :woman: Riley and our cat :smile_cat: Elaine.
 
 
 
