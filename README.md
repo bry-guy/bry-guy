@@ -1,6 +1,6 @@
 Hi, I'm Bryan!
 
-:computer: I work on GitHub's billing software.
+:computer: I work at AgentSync.
 
 :evergreen_tree: I live in the Pacific Northwest.
 
